@@ -1,0 +1,1 @@
+src="https://media.rolex.com/video/upload/c_limit,w_1920/f_auto:video/q_auto:best/v1/rolexcom/collection/family-pages/professional-watches/cosmograph-daytona/landing/videos/cover/professional-watches-cosmograph-daytona-cover-autoplay"
